@@ -1,1 +1,2 @@
-# niranjanachary.github.io
+This is Niranjan Seepelli Portfolio.
+Soon wil update.......
